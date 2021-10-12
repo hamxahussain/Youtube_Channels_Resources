@@ -10,13 +10,15 @@
 
 ---
 
-#### Follow me on [GITHUB](https://github.com/hamzaxeros)
+#### Follow me on [GITHUB](https://github.com/hamzaxeros "hamzaxeros profile")
 
-#### Follow me on [TWITTER](https://twitter.com/hamzaxeros)
+#### Follow me on [TWITTER](https://twitter.com/hamzaxeros "hamzaxeros profile")
 
-#### Follow me on [FACEBOOK](https://web.facebook.com/hamzaxeros01)
+#### Follow me on [FACEBOOK](https://web.facebook.com/hamzaxeros01 "hamzaxeros profile")
 
-#### Follow me on [INSTAGRAM](https://instagram.com/hamzaxeros)
+#### Follow me on [INSTAGRAM](https://instagram.com/hamzaxeros "hamzaxeros profile")
+
+#### Follow me on [Linkden](https://www.linkedin.com/in/hamzaxeros "hamzaxeros profile")
 
 ---
 
