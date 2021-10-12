@@ -8,13 +8,15 @@
 
 ---
 
-#### Follow me on [GITHUB](https://Youtube.com)
+#### Follow me on [GITHUB](https://github.com/hamzaxeros "hamzaxeros profile")
 
-#### Follow me on [TWITTER](https://Youtube.com)
+#### Follow me on [TWITTER](https://twitter.com/hamzaxeros "hamzaxeros profile")
 
-#### Follow me on [FACEBOOK](https://Youtube.com)
+#### Follow me on [FACEBOOK](https://web.facebook.com/hamzaxeros01 "hamzaxeros profile")
 
-#### Follow me on [INSTAGRAM](https://Youtube.com)
+#### Follow me on [INSTAGRAM](https://instagram.com/hamzaxeros "hamzaxeros profile")
+
+#### Follow me on [LINKEDIN](https://www.linkedin.com/in/hamzaxeros "hamzaxeros profile")
 
 ---
 
