@@ -18,7 +18,7 @@
 
 #### Follow me on [INSTAGRAM](https://instagram.com/hamzaxeros "hamzaxeros profile")
 
-#### Follow me on [Linkden](https://www.linkedin.com/in/hamzaxeros "hamzaxeros profile")
+#### Follow me on [LINKEDIN](https://www.linkedin.com/in/hamzaxeros "hamzaxeros profile")
 
 ---
 
